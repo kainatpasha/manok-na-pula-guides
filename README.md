@@ -1,2 +1,14 @@
-# manok-na-pula-guides
-Manok Na Pula guides, tips, updates, and gameplay information.
+# Manok Na Pula Guides
+
+Helpful guides, tips, and updates for Manok Na Pula players.
+
+## Website
+
+https://manpulamodapk.com
+
+## Topics
+
+- Manok Na Pula guides
+- Gameplay tips
+- Updates
+- Game information
